@@ -4,6 +4,7 @@ Mike A.: nt8irs06.html
 Armando M.: 5pbkmpnv.html
 Anthony P.: qpmy8crz.html
 Jeff B.: czw8tod6.html
+Alex R.: deqjh2ny.html
 Mike W.: oy6cvuty.html
 Jordan G.: ditjp9nx.html
 Trevian P: bc0ydukx.html
